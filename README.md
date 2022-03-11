@@ -4,6 +4,8 @@
 
 https://reurl.cc/Zro0aW
 
+* [EX](https://reurl.cc/9O9gvY)
+
 #### 講義/簡報
 * [CyberPi ver1.6.10](https://drive.google.com/file/d/1inOKYydflOPdUPF511OW0AT1pUHNvuJQ/view?usp=sharing)
 ##
