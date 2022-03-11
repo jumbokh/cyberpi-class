@@ -1,6 +1,6 @@
 # cyberpi-class
 
-上課資料夾:
+上課資料夾: https://reurl.cc/Rjopzz
 
 https://reurl.cc/Zro0aW
 
